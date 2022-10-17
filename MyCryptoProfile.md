@@ -1,0 +1,1 @@
+Linking my account @bennypurbaa on GitHub with my address 0x171b854f96a39489e3da169aa811828e216a9b44 on EVM in mycryptoprofile.io, and the challenge code is: 16efa5c4cf2e92cbe408a0dbfd20f7c3. #LitentryVerifyMyAddress
